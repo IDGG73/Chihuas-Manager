@@ -1,1 +1,0 @@
-# Chihuas-Manager
